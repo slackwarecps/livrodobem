@@ -1,5 +1,6 @@
 # livrodobem
-livro de coisas boas caju
+<<<<<<< HEAD
+livro de coisas boas maracuja
 
 Eu acho que avida deve ser assim:
 
