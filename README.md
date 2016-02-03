@@ -17,6 +17,6 @@ Erick Maeda:
 Agua mole em pedra dura tanto bate até que fura.
 
 conta:
-2 + 2 = 7
+2 + 2 = 4
 
 
