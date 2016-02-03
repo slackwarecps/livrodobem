@@ -19,4 +19,11 @@ Agua mole em pedra dura tanto bate até que fura.
 conta:
 2 + 2 = 7
 
+Eu acho que você poderia alterar a sua conta para assim conseguir o verdadeiro resultado.
+
+2 + 2 = 4
+
+ou 
+
+3 + 4 = 7
 
