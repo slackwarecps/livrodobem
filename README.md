@@ -1,5 +1,5 @@
 # livrodobem
-livro de coisas boas jaboticaba Manga Kiw Kiwi
+livro de coisas boas jaboticaba Manga Kiwi
 
 
 Eu acho que avida deve ser assim:
