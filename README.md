@@ -15,3 +15,8 @@ pimenta no olho dos outros é refresco.
 <Aqui voce coloca o seu>
 Erick Maeda:
 Agua mole em pedra dura tanto bate até que fura.
+
+conta:
+2 + 2 = 7
+
+
