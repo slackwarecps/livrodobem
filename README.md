@@ -1,6 +1,7 @@
 # livrodobem
-<<<<<<< HEAD
-livro de coisas boas maracuja
+
+livro de coisas boas jaboticaba Manga maracuja
+
 
 Eu acho que avida deve ser assim:
 
