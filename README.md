@@ -21,5 +21,5 @@ pimenta no olho dos outros é refresco.
 
 Bacon ipsum dolor amet landjaeger meatball ball tip frankfurter sausage tenderloin sirloin chicken jowl picanha cupim porchetta pork chop venison rump. Jerky tri-tip alcatra pork loin corned beef strip steak ball tip, pork hamburger bresaola doner spare ribs. Filet mignon alcatra turducken pork belly, frankfurter t-bone shank ball tip. Venison pancetta biltong tongue ham hock prosciutto cupim kielbasa ham meatball kevin filet mignon brisket jerky. Alcatra rump boudin, porchetta hamburger sausage swine kielbasa ham tongue beef spare ribs.
 
-
+Daniel: Se estiver atravessando o inferno, não pare!
 
