@@ -1,5 +1,5 @@
 # livrodobem
-livro de coisas boas Jaboticaba Manga Kiwi Maracuja Melancia Laranja Tomate
+livro de coisas boas Jaboticaba Manga Kiwi Maracuja Melancia Laranja Tomate,Chuchu
 
 Eu acho que avida deve ser assim:
 
